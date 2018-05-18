@@ -1,0 +1,38 @@
+## Group RC2:
+
+
+- Pontus TIDEMAND (SWE) and Jonas ANDERSSON (SWE) from the SKODA MOTORSPORT.
+- Gus GREENSMITH (GBR) and Craig PARRY (GBR) from the GUS GREENSMITH.
+- Pedro  HELLER (CHL) and co-driver Pablo OLMOS (ARG) of the PEDRO HELLER.
+- Takamoto KATSUTA (JPN) and co-driver Marko SALMINEN (FIN) of the TOMMI MÄKINEN RACING OY.
+- Jari HUTTUNEN (FIN) and co-driver Antti LINNAKETO (FIN) for the HYUNDAI MOTORSPORT.
+- Fabio ANDOLFI (ITA) and Simone SCATTOLIN (ITA) for the ACI TEAM ITALIA WRC.
+- Lukasz PIENIAZEK (POL) and Przemyslaw  MAZUR (POL) of the PRINTSPORT.
+- Nil SOLANS BALDO (ESP) and Miquel  IBAÑEZ SOTOS (ESP) of the NIL SOLANS BALDO.
+- Pierre-Louis LOUBET (FRA) and co-driver Vincent LANDAIS (FRA) of the BRC RACING TEAM.
+- Hiroki ARAI (JPN) and co-driver Glenn MACNEALL (AUS) of the TOMMI MÄKINEN RACING OY.
+- Kevin ABBRING (NLD) and co-driver Pieter TSJOEN (BEL) of the KEVIN ABBRING.
+- Stéphane LEFEBVRE (FRA) and Gabin MOREAU (FRA) from the CITROEN TOTAL.
+- Juuso NORDGREN (FIN) and Tapio SUOMINEN (FIN) of the SKODA MOTORSPORT.
+- Max VATANEN (FIN) and Christopher GUIEU (FRA) for the MAX VATANEN.
+- Murat BOSTANCI (TUR) and Onur VATANSEVER (TUR) from the CASTROL FORD TEAM TÜRKIYE.
+- Simone TEMPESTINI (ROU) and co-driver Sergiu ITU (ROU) of the SIMONE TEMPESTINI.
+- Benito GUERRA (MEX) and co-driver Borja ROZADA (ESP) for the MOTORSPORT ITALIA SRL.
+- Armindo  ARAÚJO (PRT) and Luís RAMALHO (PRT) from the TEAM HYUNDAI PORTUGAL ARMINDO ARAÚJO.
+- Pedro MEIRELES (PRT) and Mário CASTRO (PRT) from the PEDRO MEIRELES.
+- Miguel BARBOSA (PRT) and Hugo MAGALHÃES (PRT) from the BP ULTIMATE VODAFONE SKODA TEAM.
+- José PEDRO FONTES (PRT) and Paulo BABO (PRT) from the CITROEN VODAFONE TEAM.
+- Brendan CUMISKEY (IRL) and co-driver Stephen MC AULEY (GBR) for the BRENDAN CUMISKEY.
+- António DIAS (PRT) and Daniel PEREIRA (PRT) for the ANTÓNIO DIAS.
+- Diogo SALVI (PRT) and co-driver Jorge HENRIQUES (PRT) of the DIOGO SALVI.
+- Joaquim ALVES (PRT) and co-driver António COSTA (PRT) of the JOAQUIM ALVES.
+- Manuel  CASTRO (PRT) and Luís  COSTA (PRT) of the MANUEL CASTRO.
+- Kees  BURGER (NLD) and Rebecca VAN DER MAREL (AUS) of the KEES BURGER.
+- Alfredo BARROS (PRT) and Vitor Hugo G. OLIVEIRA (PRT) of the ALFREDO BARROS.
+- Francisco TEIXEIRA (PRT) and co-driver João SERÔDIO (PRT) from the FRANCISCO TEIXEIRA.
+- Ricardo MARQUES (PRT) and Hugo RODRIGUES (PRT) for the RICARDO MARQUES.
+- Radik SHAYMIEV (RUS) and co-driver Maxim TSVETKOV (RUS) of the TAIF MOTORSPORT.
+- João FERNANDO RAMOS (PRT) and co-driver José JANELA (PRT) from the RMC MOTORSPORT.
+- José BARBOSA (PRT) and Ricardo BARBOSA (PRT) for the JOSÉ BARBOSA.
+- Pedro SÁ (PRT) and Leandro PARREIRA (PRT) of the PEDRO SÁ.
+- Pedro RODRIGUES (PRT) and co-driver Fernandes DANIEL (PRT) of the PEDRO RODRIGUES.

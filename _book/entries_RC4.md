@@ -1,0 +1,41 @@
+## Group RC4:
+
+
+- Dennis  RÅDSTRÖM (SWE) and co-driver Johan JOHANSSON (SWE) for the DENNIS RÅDSTRÖM.
+- Jean-Baptiste  FRANCESCHI (FRA) and co-driver Romain COURBON (FRA) of the ÉQUIPE DE FRANCE FFSA RALLYE.
+- Emil  BERGKVIST (SWE) and Joakim SJÖBERG (SWE) for the EMIL BERGKVIST.
+- Terry FOLB (FRA) and Kevin BRONNER (FRA) for the TERRY FOLB.
+- Callum DEVINE (IRL) and co-driver Brian HOY (IRL) for the CALLUM DEVINE.
+- Julius TANNERT (DEU) and co-driver Jürgen HEIGL (AUT) of the ADAC SACHSEN E.V..
+- Ken TORN (EST) and Kuldar SIKK (EST) from the OT RACING.
+- Luca  BOTTARELLI (ITA) and Manuel  FENOLI (ITA) for the ACI TEAM ITALIA WRC.
+- Emilio FERNÁNDEZ (CHL) and co-driver Joaquin RIQUELME (CHL) for the EMILIO FERNÁNDEZ.
+- Bugra BANAZ (TUR) and Burak ERDENER (TUR) of the CASTROL FORD TEAM TURKIYE.
+- David HOLDER (NZL) and co-driver Jason FARMER (NZL) for the HOLDER BROTHERS RACING.
+- Tom WILLIAMS (GBR) and Phil HALL (GBR) for the TOM WILLIAMS.
+- Enrico  OLDRATI (ITA) and co-driver Danilo  FAPPANI (ITA) for the ACI TEAM ITALIA WRC.
+- Umberto ACCORNERO (ITA) and co-driver Maurizio BARONE (ITA) for the UMBERTO ACCORNERO.
+- Hélder MIRANDA (PRT) and Rui TEIXEIRA (PRT) from the HÉLDER MIRANDA.
+- Pedro LAGO VIEIRA (PRT) and Ricardo FARIA (PRT) of the PEDRO LAGO VIEIRA.
+- Joana  BARBOSA (PRT) and Sofia MOUTA (PRT) for the JOANA BARBOSA.
+- Nabila  TEJPAR (GBR) and co-driver Richard BLISS (GBR) of the NABILA TEJPAR.
+- Cameron DAVIES (GBR) and Max FREEMAN (GBR) from the CAMERON DAVIES.
+- Roberto BLACH NUÑEZ (ESP) and co-driver José MURADO GONZALEZ (ESP) of the ESCUDERÍA LA CORUÑA.
+- Hugo LOPES (PRT) and co-driver Alberto SILVA (PRT) from the HUGO LOPES.
+- Paulo MOREIRA (PRT) and co-driver Marco MACEDO (PRT) for the PAULO MOREIRA.
+- Francisco DORADO VIZCAÍNO (ESP) and co-driver Roi TORRENTE PÉREZ (ESP) for the PTC ESCUELA.
+- Pedro ANTUNES (PRT) and co-driver Paulo LOPES (PRT) for the PEDRO ANTUNES.
+- Daniel  NUNES (PRT) and Rui RAIMUNDO (PRT) from the DANIEL NUNES.
+- Ivan MEDINA HERRERA (ESP) and Yeray MUJICA EUGENIO (ESP) of the ESCUDERIA ATERURA.
+- Juan MANUEL MAÑÁ (ESP) and co-driver Borja ODRIOZOLA (ESP) of the RASANTE SPORT.
+- Ricardo SOUSA (PRT) and Luís MARQUES (PRT) of the RICARDO SOUSA.
+- Josep  BASSAS (ESP) and Axel CORONADO (PRT) of the SEC. ESP. RACC MOTOR SPORT.
+- João ALVES (PRT) and José RODRIGUES (PRT) for the JOÃO ALVES.
+- Rui CARVALHO (PRT) and co-driver Jorge CARVALHO (PRT) from the RUI CARVALHO.
+- Jan SOLANS BALDO (ESP) and co-driver Mauro BARREIRO ZAS (ESP) of the ESCUDERIA MOTOR TERRASSA.
+- Diogo GAGO (PRT) and co-driver Miguel RAMALHO (PRT) from the MCOUTINHO RACING.
+- Ramon CORNET (ESP) and co-driver Daniel NOGUER (ESP) of the ESCUDERIA OSONA.
+- Alberto SANSEGUNDO (ESP) and co-driver Juan LUIS GARCIA (ESP) of the FMC-UCAV RACING ENGINEERING.
+- Miguel LOBO (PRT) and co-driver Paulo MARQUES (PRT) of the MIGUEL LOBO.
+- Diogo  SOARES (PRT) and Luís  RODRIGUES (PRT) of the DIOGO SOARES.
+- Alvaro  PEREZ ABEIJON (ESP) and co-driver Brais MIRON CARNES (ESP) from the ESCUDERIA BERBERECHO.
